@@ -1,3 +1,3 @@
-# Binesto
+# Suw Tech
 
-Binesto offers quality services to its customers as a modern and innovative digital agency.
+Romania-based software company
